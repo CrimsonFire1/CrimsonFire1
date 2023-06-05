@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Petunia Rizo! @CrimsonFire1
+- 👀 I’m majoring in electrical engineering at UCLA
